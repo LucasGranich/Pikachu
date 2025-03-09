@@ -5,3 +5,4 @@ agora vai
 adicionando porcaria
 #Teste 05: Um novo começo
 teste 06 : para de graça
+teste07 : Nao seu doente
