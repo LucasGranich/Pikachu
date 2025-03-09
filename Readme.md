@@ -4,3 +4,4 @@ por favor funciona deus
 agora vai
 adicionando porcaria
 #Teste 05: Um novo começo
+teste 06 : para de graça
